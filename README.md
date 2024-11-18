@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Anshul-295
+- 👋 Hi, I’m @Anshul
 - 👀 I’m interested in AI&ML
-- 🌱 I’m currently learning AIML
-- 💞️ I’m looking to collaborate on Ai Projects
-- 📫 How to reach me Email= try.anshuu120@gmail.com
+- 🌱 I’m currently in my learning phase
+- 💞️ I’m looking to collaborate on AI as well as Data Analytics Projects
+- 📫 How to reach me Email= asnhulxpatel29@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm Noob 😂
 
