@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI&ML
 - 🌱 I’m currently in my learning phase
 - 💞️ I’m looking to collaborate on AI as well as Data Analytics Projects
-- 📫 How to reach me Email= asnhulxpatel29@gmail.com
+- 📫 How to reach me Email= anshulxpatel29@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm Noob 😂
 
